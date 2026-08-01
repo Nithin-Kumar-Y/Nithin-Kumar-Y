@@ -7,7 +7,7 @@ Hi I am **NITHIN KUMAR Y**
 * CSE- 1ST YEAR
 ---
 
-![](https://leetcard.jacoblin.cool/Nithin_Kumar_Y?border=0&radius=20)
+![](https://leetcard.jacoblin.cool/pheonix_nithin?border=0&radius=20)
 
 ---
 ## 🌐 Socials:
